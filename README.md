@@ -13,6 +13,6 @@
 <div align="center">
   
 
-  [𝚁𝚎𝚗𝚝𝚛𝚢‎](https://rentry.co/shadzzz)      ‎ ‎   ‎  ‎  ‎  ‎  ‎          ‎ ‎  ‎  ‎  ‎  ‎  ‎     [𝙰𝚝𝚊𝚋𝚘𝚘𝚔](https://007n7yaoi.atabook.org/)
+  [𝚁𝚎𝚗𝚝𝚛𝚢‎](https://rentry.co/0sevn7)      ‎ ‎   ‎  ‎  ‎  ‎  ‎          ‎ ‎  ‎  ‎  ‎  ‎  ‎     [𝙰𝚝𝚊𝚋𝚘𝚘𝚔](https://007n7yaoi.atabook.org/)
   
 </div>

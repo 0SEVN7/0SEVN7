@@ -2,13 +2,13 @@
 </p>
 
 <p align="center">
-    <img width="140" src="https://komarev.com/ghpvc/?username=your-github-username&color=BF7AB6" alt="views count">
+    <img width="140" src="https://komarev.com/ghpvc/?username=your-github-username&color=497DA2" alt="views count">
 </p>
 <div align="center">
   
 </p> 
 <p align="center">
-    <img width="270" src="https://64.media.tumblr.com/ff1942a1eb7f74ed46f437b52a509747/5378ade1a442bd26-31/s640x960/9dc7c3d8ed387558f22508659d424be5933e0e29.pnj" alt="">
+    <img width="270" src="https://64.media.tumblr.com/1dd5badfc19526a02f7384a65a2af7a5/5da251da26f79aa4-10/s640x960/eb793b1deb4600f13869098535f169ee8f7ae855.pnj" alt="">
 </p>
 <div align="center">
   

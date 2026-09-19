@@ -1,6 +1,8 @@
  
 </p>
 
+<p align="center">
+    <img width="" src="https://64.media.tumblr.com/a8c6f80119fa6db9c5a400af4832b93f/6ea5512aea790c69-fa/s400x600/84c8b2b54779e836807f03afb554f7c926155dde.gifv" alt="">
 
 <p align="center">
 
@@ -22,6 +24,8 @@ ${\color{#9BF533}\textsf{ ᴗᴗ Tᥲ𝗸ᥱᥒ　(˶˃ ᵕ ˂˶)}}$
 </p> 
 
 [𝙍𝘦𝘯𝘵𝘳𝘺](https://rentry.co/0sevn7)      ‎ ‎   ‎  ‎  ‎  ‎  ‎          ‎ ‎  ‎  ‎  ‎  ‎  ‎     [𝘼𝘵𝘢𝘣𝘰𝘰𝘬](https://sevn7.atabook.org/)
-  
+
+<p align="center">
+    <img width="" src="https://64.media.tumblr.com/a8c6f80119fa6db9c5a400af4832b93f/6ea5512aea790c69-fa/s400x600/84c8b2b54779e836807f03afb554f7c926155dde.gifv" alt="">
   
 </div>

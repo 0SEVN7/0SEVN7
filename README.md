@@ -8,15 +8,15 @@
 
 </p> 
 <p align="center">
-    <img width="270" src="https://64.media.tumblr.com/ef4ab624808291ad192bccac3d26b30a/b6ccd8b33a52c423-69/s1280x1920/c658e1b46fa0eef929d38b299321058156235228.pnj" alt="">
+    <img width="270" src="https://64.media.tumblr.com/1c6c495cef20d48bcc9e87303a35540f/b6ccd8b33a52c423-fd/s1280x1920/fdfde4982c878f9823e930e935bff162b7364a54.pnj" alt="">
 
 </p> 
 
 ${\color{#FA5B45}\textsf{੭﹕﹒ 𝙎ᥱv  ᥆r  Al𝗲x !}}$ 
 
-${\color{#FA5B45}\textsf{  𝗮ᥒy p𝗿ᥒs 𔓕 8t𝗲ᥱᥒ      𓈒　    𝗲ᥒ𝕘   𓏏𓏏   𝗲ׅ꯱𝕡}}$ ㅤㅤ 
+${\color{#94F0FD}\textsf{  𝗮ᥒy p𝗿ᥒs 𔓕 8t𝗲ᥱᥒ      𓈒　    𝗲ᥒ𝕘   𓏏𓏏   𝗲ׅ꯱𝕡}}$ ㅤㅤ 
 
-${\color{#FA5B45}\textsf{0̤0̤7̤n̤7̤ 𝐟𝕚c𝕜in}}$ㅤㅤ ${\color{#FA5B45}\textsf{Tᥲ𝗸ᥱᥒ　(˶˃ ᵕ ˂˶)}}$
+${\color{#9BF533}\textsf{0̤0̤7̤n̤7̤ 𝐟𝕚c𝕜in}}$ㅤㅤ ${\color{#9BF533}\textsf{Tᥲ𝗸ᥱᥒ　(˶˃ ᵕ ˂˶)}}$
 
 </p> 
 

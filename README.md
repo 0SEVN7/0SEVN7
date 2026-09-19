@@ -16,7 +16,7 @@ ${\color{#FA5B45}\textsf{੭﹕﹒ 𝙎ᥱv  ᥆r  Al𝗲x !}}$
 
 ${\color{#FA5B45}\textsf{  𝗮ᥒy p𝗿ᥒs 𔓕 8t𝗲ᥱᥒ      𓈒　    𝗲ᥒ𝕘   𓏏𓏏   𝗲ׅ꯱𝕡}}$ ㅤㅤ 
 
-${\color{#FA5B45}\textsf{007n7 fickin}}$ㅤㅤ ${\color{#FA5B45}\textsf{Tᥲ𝗸ᥱᥒ　(˶˃ ᵕ ˂˶)}}$
+${\color{#FA5B45}\textsf{0̤0̤7̤n̤7̤ 𝐟𝕚c𝕜in}}$ㅤㅤ ${\color{#FA5B45}\textsf{Tᥲ𝗸ᥱᥒ　(˶˃ ᵕ ˂˶)}}$
 
 </p> 
 

@@ -1,9 +1,6 @@
  
 </p>
 
-<p align="center">
-    <img width="140" src="https://komarev.com/ghpvc/?username=your-github-username&color=F29699" alt="views count">
-</p>
 <div align="center">
   
 </p> 

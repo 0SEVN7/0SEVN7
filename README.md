@@ -16,11 +16,12 @@ ${\color{#FA5B45}\textsf{੭﹕﹒ 𝙎ᥱv  ᥆r  Al𝗲x !}}$
 
 ${\color{#94F0FD}\textsf{  𝗮ᥒy p𝗿ᥒs 𔓕 8t𝗲ᥱᥒ      𓈒　    𝗲ᥒ𝕘   𓏏𓏏   𝗲ׅ꯱𝕡}}$ ㅤㅤ 
 
-${\color{#9BF533}\textsf{0̤0̤7̤n̤7̤ 𝐟𝕚c𝕜in}}$ㅤㅤ ${\color{#9BF533}\textsf{Tᥲ𝗸ᥱᥒ　(˶˃ ᵕ ˂˶)}}$
+${\color{#9BF533}\textsf{0̤0̤7̤n̤7̤ 𝐟𝕚c𝕜in}}$ ㅤ
+${\color{#9BF533}\textsf{ ᴗᴗ Tᥲ𝗸ᥱᥒ　(˶˃ ᵕ ˂˶)}}$
 
 </p> 
 
-[𝚁𝚎𝚗𝚝𝚛𝚢‎](https://rentry.co/0sevn7)      ‎ ‎   ‎  ‎  ‎  ‎  ‎          ‎ ‎  ‎  ‎  ‎  ‎  ‎     [𝙰𝚝𝚊𝚋𝚘𝚘𝚔](https://sevn7.atabook.org/)
+[𝙍𝘦𝘯𝘵𝘳𝘺](https://rentry.co/0sevn7)      ‎ ‎   ‎  ‎  ‎  ‎  ‎          ‎ ‎  ‎  ‎  ‎  ‎  ‎     [𝘼𝘵𝘢𝘣𝘰𝘰𝘬](https://sevn7.atabook.org/)
   
   
 </div>

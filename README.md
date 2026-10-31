@@ -4,10 +4,10 @@
 
 <div align="center">
   
-${\color{#D28EB4}\textsf{ໃ ͝ 𓏼ㅤSev or Alexㅤ、any prns}}$
+${\color{#D28EB4}\textsf{ໃ ͝ 𓏼　Sev or Alex　、any prns}}$
 
-${\color{#B185B0}\textsf{8teenㅤㅤ𓏲ּ𝄢ㅤㅤadhdㅤ.ㅤbipolar}}$
+${\color{#B185B0}\textsf{8teen　　𓏲ּ𝄢　　adhd　.　bipolar}}$
 
-${\color{#D28EB4}\textsf{੭﹕﹒ㅤeng ✚ espㅤㅤtakenㅤ♡}}$
+${\color{#D28EB4}\textsf{੭﹕﹒　eng ✚ esp　　takenㅤ♡}}$
 
-${\color{#B185B0}\textsf{Ი𐑼ㅤ007n7 fictkinㅤ⏖ㅤMafioso yumeㅤ}}$
+${\color{#B185B0}\textsf{Ი𐑼　007n7 fictkin　⏖　Mafioso yume}}$

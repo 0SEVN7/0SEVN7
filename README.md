@@ -5,4 +5,5 @@
 
 <div align="center">
   
-${\color{#D28EB4}\textsf{ໃ ͝ 𓏼 Sev or Alexㅤ、any prns}}$
+${\color{#D28EB4}\textsf{ໃ ͝ 𓏼ㅤSev or Alexㅤ、any prns}}$
+${\color{#B185B0}\textsf{8teenㅤㅤ𓏲ּ𝄢ㅤㅤadhdㅤ.ㅤbipolar}}$

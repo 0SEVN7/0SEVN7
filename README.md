@@ -5,4 +5,4 @@
 
 <div align="center">
   
-${\color{#D28EB4}\textsf{ໃ ͝ 𓏼 Sev or Alexㅤㅤ、ㅤㅤany prns}}$
+${\color{#D28EB4}\textsf{ໃ ͝ 𓏼 Sev or Alexㅤ、ㅤany prns}}$

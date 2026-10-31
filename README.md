@@ -6,4 +6,5 @@
   
 ${\color{#D28EB4}\textsf{ໃ ͝ 𓏼ㅤSev or Alexㅤ、any prns}}$
 ${\color{#B185B0}\textsf{8teenㅤㅤ𓏲ּ𝄢ㅤㅤadhdㅤ.ㅤbipolar}}$
-${\color{#color}\textsf{੭﹕﹒ㅤeng ✚ espㅤㅤtakenㅤ♡}}$
+${\color{#D28EB4}\textsf{੭﹕﹒ㅤeng ✚ espㅤㅤtakenㅤ♡}}$
+${\color{#B185B0}\textsf{Ი𐑼ㅤ007n7 fiction kinㅤ⏖ㅤㅤMafioso yumeㅤ}}$

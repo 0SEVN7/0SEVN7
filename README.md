@@ -5,8 +5,4 @@
 
 <div align="center">
   
-$\color{#D28EB4}{\textsf{ໃ ͝ 𓏼}}$⠀ ⠀ $\color{#D28EB4}{\textsf{Sev}}$ ⠀  ⠀ $\color{#D28EB4}{\textsf{or}}$ ⠀ $\color{#D28EB4}{\textsf{Alex}}$ ⠀ $\color{#D28EB4}{\textsf{、}}$ ⠀  ⠀ ⠀ $\color{#D28EB4}{\textsf{any prns}}$
-<br/>
-$\color{#B185B0}{\textsf{8teen}}$⠀ $\color{#B185B0}{\textsf{( ˘͈ ᵕ ˘͈♡)}}$ ⠀ $\color{#B185B0}{\textsf{adhd . bipolar}}$ $\color{#B185B0}{\textsf{taken <3}}$ ⠀ ⠀ 
-<br/>
-
+${\color{#D28EB4}\textsf{ໃ ͝ 𓏼 Sev or Alexㅤㅤ、ㅤㅤany prns}}$

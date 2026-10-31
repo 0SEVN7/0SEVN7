@@ -8,6 +8,6 @@ ${\color{#D28EB4}\textsf{ໃ ͝ 𓏼　Sev or Alex　、any prns}}$
 
 ${\color{#B185B0}\textsf{8teen　　𓏲ּ𝄢　　adhd　.　bipolar}}$
 
-${\color{#D28EB4}\textsf{੭﹕﹒　eng ✚ esp　　takenㅤ♡}}$
+${\color{#D28EB4}\textsf{੭﹕﹒　eng ✚ esp　(ˊᗜˋ*) 　taken　♡}}$
 
 ${\color{#B185B0}\textsf{Ი𐑼　007n7 fictkin　⏖　Mafioso yume}}$

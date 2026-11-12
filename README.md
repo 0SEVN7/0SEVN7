@@ -4,7 +4,7 @@
 
 <div align="center">
   
-${\color{#D28EB4}\textsf{ໃ ͝ 𓏼　𝑺𝘦𝙫 ᴏʀ 𝗔l𝗲𝕩　、a𝗻𝚢 𝙥𝘳𝙣𝘴}}$
+${\color{#D28EB4}\textsf{ໃ ͝ 𓏼　𝑺𝘦𝙫 ᴏʀ 𝗔l𝗲𝕩　、he . they}}$
 
 ${\color{#B185B0}\textsf{8teen　　𓏲ּ𝄢　　𝙖ძ𝗵d　.　b𝕚𝗽o𝗹a𝗿}}$
 
